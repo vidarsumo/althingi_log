@@ -1,0 +1,1 @@
+# althingi_log
